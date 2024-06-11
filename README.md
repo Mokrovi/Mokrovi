@@ -1,7 +1,6 @@
 ## Hi there 👋
 
-![animation gif](https://github.com/Mokrovi/Mokrovi/assets/124563751/29280757-d58f-4452-82c0-451bfc0c8044)
-
+![tenor](https://github.com/Mokrovi/Mokrovi/assets/124563751/b94d3823-f536-4d00-b6d6-38c88450ab22)
 
 
 <!--
