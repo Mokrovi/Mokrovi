@@ -1,6 +1,7 @@
 ## Hi there 👋
 
-https://github.com/Mokrovi/Mokrovi/assets/124563751/2ecf0a22-47e0-429e-bbd2-5f3fcd401a31
+![animation gif](https://github.com/Mokrovi/Mokrovi/assets/124563751/29280757-d58f-4452-82c0-451bfc0c8044)
+
 
 
 <!--
